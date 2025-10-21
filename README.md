@@ -60,7 +60,7 @@ Mis metas actuales incluyen:
 
 📧 **Correo:** [alejandrodorado859@gmail.com](mailto:alejandrodorado859@gmail.com)  
 💼 **LinkedIn:** [linkedin.com/in/david-alejandro-dorado](https://www.linkedin.com/in/david-alejandro-dorado-garay-7120aa247/)  
-🌐 **GitHub:** [github.com/DavidDoradoGaray](https://github.com/DavidDoradoGaray)  
+🌐 **GitHub:** [github.com/DavidDoradoGaray](https://github.com/alejodoradog)  
 
 ---
 
