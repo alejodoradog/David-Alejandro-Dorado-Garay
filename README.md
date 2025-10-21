@@ -1,2 +1,2 @@
 # David-Alejandro-Dorado-Garay
-This is my personal reposeitory
+This is my personal repository
